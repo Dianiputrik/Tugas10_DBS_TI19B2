@@ -8,3 +8,4 @@
 ![2](https://user-images.githubusercontent.com/81963657/123937712-573cdd00-d936-11eb-9ca1-51cbdb0e1e09.PNG)
 # Melakukan proses penguncian
 ![5](https://user-images.githubusercontent.com/81963657/123937836-79365f80-d936-11eb-8e80-27f1b31b03d4.PNG)
+![6](https://user-images.githubusercontent.com/81963657/124340905-8468d580-db58-11eb-89c7-373d7e19ea3f.PNG)
